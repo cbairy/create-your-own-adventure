@@ -1,0 +1,1 @@
+ಕನ್ನಡ pustake koLLalu [ಇದು](https://www.sapnaonline.com/shop/kannada-books)  ಒಳ್ಳೆಯ anagadi.
